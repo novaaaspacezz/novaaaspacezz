@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/ea5521d9-76e9-4bec-83ee-75077352e48e)
 
 
-### -------------------------------------------------------------------------------------------------------
+### ---------------------------------------------------------------------------------------------
 I'm boba, or if you would like to call me, nova ! 
 
 This is mostly used for my pony town but, My spots are, Near my friends, Near forsaken spot, Or near bakery !
