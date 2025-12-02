@@ -16,5 +16,7 @@ I'm a pretty talkative person when I'm with my friends, but I'm not with strange
  - check out my pronouns ! https://pronouns.cc/@novaaspacezzzz -
  
  - color my tree ! https://colormytree.me/2025/01KBB0TTMJ3WMMRDC4Y9H5BEKC?page=1 -
+   
+   ![](https://komarev.com/ghpvc/?username=novaaaspacezz&color=yellow)
 
     ![image](https://github.com/user-attachments/assets/57b6a5a9-b622-471a-9410-0170fa6a0090)
