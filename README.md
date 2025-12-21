@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/ea5521d9-76e9-4bec-83ee-75077352e48e)
+![image](https://github.com/user-attachments/assets/d38dcefc-b802-4522-90a2-e980417fa485)![image](https://github.com/user-attachments/assets/c383e21f-a2e1-4a00-9889-82df7d8741d5)
+
 
 
 ### ----------------------------------------------------------------------------------
@@ -8,15 +9,16 @@ This is mostly used for my pony town but, My spots are, Near my friends, Near fo
 
 I'm a pretty talkative person when I'm with my friends, but I'm not with strangers .
   
-     " I want to be the joker but in a girl way "
+     " What is popping, gamers? "
 - sign my ata ! https://novvaaspacezz.atabook.org -
 
-- send me gimmicks ! https://slingshotpeww.straw.page -
+- send me gimmicks ! https://laughabilitii.straw.page -
  
  - check out my pronouns ! https://pronouns.cc/@novaaspacezzzz -
  
  - color my tree ! https://colormytree.me/2025/01KBB0TTMJ3WMMRDC4Y9H5BEKC?page=1 -
    
-   ![](https://komarev.com/ghpvc/?username=novaaaspacezz&color=yellow)
+   ![](https://komarev.com/ghpvc/?username=novaaaspacezz&color=red)
 
-    ![image](https://github.com/user-attachments/assets/57b6a5a9-b622-471a-9410-0170fa6a0090)
+
+
