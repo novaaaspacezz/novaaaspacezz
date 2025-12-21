@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/d38dcefc-b802-4522-90a2-e980417fa485)![image](https://github.com/user-attachments/assets/c383e21f-a2e1-4a00-9889-82df7d8741d5)
+![image](https://github.com/user-attachments/assets/c383e21f-a2e1-4a00-9889-82df7d8741d5)
 
 
 
@@ -21,4 +21,4 @@ I'm a pretty talkative person when I'm with my friends, but I'm not with strange
    ![](https://komarev.com/ghpvc/?username=novaaaspacezz&color=red)
 
 
-
+![image](https://github.com/user-attachments/assets/d38dcefc-b802-4522-90a2-e980417fa485)
