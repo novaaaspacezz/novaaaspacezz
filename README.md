@@ -12,7 +12,7 @@ I'm a pretty talkative person when I'm with my friends, but I'm not with strange
      " What is popping, gamers? "
 - sign my ata ! https://novvaaspacezz.atabook.org -
 
-- send me gimmicks ! https://laughabilitii.straw.page -
+- send me gimmicks ! https://badwareee.straw.page -
  
  - check out my pronouns ! https://pronouns.cc/@novaaspacezzzz -
   
