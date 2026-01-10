@@ -5,9 +5,10 @@
 ### ----------------------------------------------------------------------------------
 I'm boba, or if you would like to call me, nova ! 
 
-This is mostly used for my pony town but, My spots are, Near my friends, Near forsaken spot, Or near bakery !
+you will see me with friends or sitting alone in forsaken area !
 
-I'm a pretty talkative person when I'm with my friends, but I'm not with strangers .
+c+h with me !! i dont bite,,,
+
   
      " What is popping, gamers? "
 - sign my ata ! https://novvaaspacezz.atabook.org -
