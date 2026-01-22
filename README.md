@@ -1,6 +1,8 @@
 <img width="1198" height="469" alt="image" src="https://github.com/user-attachments/assets/4379a08f-0379-43e4-ab7b-c3c3e033dc1e" />
 <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/1653db28-1091-4d7a-9cd4-3dee73ee1202" />
 
+$${\color{blue}boba}$$$$ {\color{blue}or}$$$$ {\color{blue}nova}$$
+
 - sign my ata ! https://novvaaspacezz.atabook.org - ![image](https://github.com/user-attachments/assets/270c997f-ee2a-4cac-987e-03f9670fb081)
 
 
