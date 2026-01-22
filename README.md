@@ -9,6 +9,9 @@
  
  - check out my pronouns ! https://pronouns.cc/@novaaspacezzzz - ![image](https://github.com/user-attachments/assets/0f3ebbc0-8193-405d-9aa1-131d37b982b9)
 
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=%E2%80%9C+Can%E2%80%99t+Catch+Me!%E2%80%9D)](https://git.io/typing-svg)
   
    ![](https://komarev.com/ghpvc/?username=novaaaspacezz&color=blue)
 
