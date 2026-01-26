@@ -1,5 +1,10 @@
 <img width="1196" height="257" alt="image" src="https://github.com/user-attachments/assets/8d0dfad4-f10b-4d93-a071-1bd148429dbd" />
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zcydosxj74wmz72lehnublf7ym&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color_cover=false&bar_color=a0f700)](https://github.com/kittinan/spotify-github-profile)
+
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B1F71F&width=435&lines=OOPS!+YOU+HAVE+BEEN+INFECTED!!)](https://git.io/typing-svg)
   
  <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/3e971184-1351-4132-a141-d9469ad32cf6" />
