@@ -1,7 +1,7 @@
 <img width="1196" height="257" alt="image" src="https://github.com/user-attachments/assets/8d0dfad4-f10b-4d93-a071-1bd148429dbd" />
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B1F71F&width=435&lines=OOPS!+YOU+HAVE+BEEN+INFECTED)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B1F71F&width=435&lines=OOPS!+YOU+HAVE+BEEN+INFECTED!!)](https://git.io/typing-svg)
+  
  <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/3e971184-1351-4132-a141-d9469ad32cf6" />
 
 
