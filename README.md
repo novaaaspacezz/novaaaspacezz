@@ -14,7 +14,7 @@
 
    [ata](https://novvaaspacezz.atabook.org)![image](https://github.com/user-attachments/assets/3ee236db-ec7b-4343-bd3a-034e0bc22251)
    [strawpage](https://pr1ncez4mm.straw.page)![image](https://github.com/user-attachments/assets/35480f4a-f9eb-4f9e-9921-0dde8a5c468b)
-   [pronouns](https://pronouns.cc/@novaaspacezzzz)![image](https://github.com/user-attachments/assets/e85d8cbb-7f14-43f8-b979-cb40e94112fd)
+   [pronouns](https://en.pronouns.page/@novaaspacezz)![image](https://github.com/user-attachments/assets/e85d8cbb-7f14-43f8-b979-cb40e94112fd)
 
 
 ![](https://komarev.com/ghpvc/?username=novaaaspacezz&label=+hackedcomputers&color=green)
